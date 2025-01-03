@@ -9,7 +9,7 @@
 𝙃𝘼𝙄𝙄𝙄𝙄𝙄𝙄 ! ! ! ! 
 
 I love anything project moon related; Lobotomy Corporation, Library of Ruina (!!!!), and Limbus (I've sadly haven't read any of their novels but TRUST I'm working on that)
-<img src="https://64.media.tumblr.com/cd70fbb846b90829665ef6422742a742/1b5672df535286b8-e0/s75x75_c1/0df75a943bdad1fcdd6263f23ec81af1a7348624.gifv">
+<img src="https://64.media.tumblr.com/faba5e957c0cfc5c2aac7dd5f2c91d7a/979aeaa541231801-2a/s75x75_c1/ee3d7cd2fa3e9df6a43b1044ca05fb4e655ed9e3.gifv">
 
 I also love Yakuza, ULTRAKILL, and L4D2 GRRRR!!!
 <img src="https://64.media.tumblr.com/df422b119f2f8759b4234b1e1b912c4b/979aeaa541231801-85/s75x75_c1/b70cdf3b57c67fc80107cb61953c783fa14550aa.gifv">
