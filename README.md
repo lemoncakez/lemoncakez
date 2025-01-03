@@ -11,6 +11,14 @@
 I love anything project moon related; Lobotomy Corporation, Library of Ruina (!!!!), and Limbus (I've sadly haven't read any of their novels but TRUST I'm working on that)
 <img src="https://64.media.tumblr.com/faba5e957c0cfc5c2aac7dd5f2c91d7a/979aeaa541231801-2a/s75x75_c1/ee3d7cd2fa3e9df6a43b1044ca05fb4e655ed9e3.gifv">
 
+╰───┄ °❀ I LOVE *LOVE* **GEBURA** !!!!!!! 
+<img src="https://media.tenor.com/fxeQmtdbVUgAAAAi/lobotomy-corporation-gebura.gif" alt="" width="30" height="30"> 
+I am super duper sapphic over her 
+<img src="https://c.tenor.com/W_mzJfhGVssAAAAd/tenor.gif" alt="" width="30" height="30">
+<img src="https://64.media.tumblr.com/f73fe8161c2fe3a70462b9f90f06ed24/979aeaa541231801-07/s75x75_c1/7c39b23c27a44902bb17df25881430f5ac469d38.gifv">
+<img src="https://64.media.tumblr.com/f73fe8161c2fe3a70462b9f90f06ed24/979aeaa541231801-07/s75x75_c1/7c39b23c27a44902bb17df25881430f5ac469d38.gifv">
+<img src="https://64.media.tumblr.com/f73fe8161c2fe3a70462b9f90f06ed24/979aeaa541231801-07/s75x75_c1/7c39b23c27a44902bb17df25881430f5ac469d38.gifv">
+
 I also love Yakuza, ULTRAKILL, and L4D2 GRRRR!!!
 <img src="https://64.media.tumblr.com/df422b119f2f8759b4234b1e1b912c4b/979aeaa541231801-85/s75x75_c1/b70cdf3b57c67fc80107cb61953c783fa14550aa.gifv">
 <img src="https://64.media.tumblr.com/df422b119f2f8759b4234b1e1b912c4b/979aeaa541231801-85/s75x75_c1/b70cdf3b57c67fc80107cb61953c783fa14550aa.gifv">
