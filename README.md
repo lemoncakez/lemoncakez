@@ -6,7 +6,7 @@
 <img src= "https://i.pinimg.com/1200x/ea/63/19/ea6319a495a6a0882f1c42f8dd622111.jpg">
 </div>
 ╰───┄ °❀
-𝙃𝘼𝙄𝙄𝙄𝙄𝙄𝙄 ! ! ! ! 
+𝙃𝘼𝙄𝙄𝙄𝙄𝙄𝙄 𝙀𝙑𝙀𝙍𝙔𝙋𝙊𝙉𝙔 ! ! ! ! 
 
 I love anything project moon related; Lobotomy Corporation, Library of Ruina (!!!!), and Limbus (I've sadly haven't read any of their novels but TRUST I'm working on that)
 <img src="https://64.media.tumblr.com/faba5e957c0cfc5c2aac7dd5f2c91d7a/979aeaa541231801-2a/s75x75_c1/ee3d7cd2fa3e9df6a43b1044ca05fb4e655ed9e3.gifv">
