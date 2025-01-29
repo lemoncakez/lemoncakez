@@ -7,7 +7,7 @@
 </div>
 ╰───┄ °❀ 𝙃𝘼𝙄𝙄𝙄𝙄𝙄𝙄 𝙀𝙑𝙀𝙍𝙔𝙋𝙊𝙉𝙔 ! ! ! ! 
 
-Check out my [strawpage](https://bobbeatslemon.straw.page/newhome) for more information and don't be afraid to leave a not or draw !!! <img src="https://pixelsafari.neocities.org/favicon/symbol/heart/bee2.gif">
+Check out my [strawpage](https://bobbeatslemon.straw.page/newhome) for more information and don't be afraid to leave a note or drawing !!! <img src="https://pixelsafari.neocities.org/favicon/symbol/heart/bee2.gif">
 
 I love anything project moon related; Lobotomy Corporation, Library of Ruina (!!!!), and Limbus (I've sadly haven't read any of their novels but TRUST I'm working on that)
 <img src="https://64.media.tumblr.com/faba5e957c0cfc5c2aac7dd5f2c91d7a/979aeaa541231801-2a/s75x75_c1/ee3d7cd2fa3e9df6a43b1044ca05fb4e655ed9e3.gifv">
